@@ -1,2 +1,2 @@
 # nov_4_lab
-Merge Conflicts
+Yo dawg, we are going to have a awesome group project and great time!  
